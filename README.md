@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **poudelsamriddha46@gmail.com**
 
-- 🤞Next stop: **Python 🚀**
+- 🤞Next stop: **Python & Word press 🚀**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
